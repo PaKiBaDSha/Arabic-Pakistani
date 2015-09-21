@@ -1,2 +1,4 @@
 # Arabic-Pakistani
-Arab and Pakistani channels Live and VOD
+List of Arab and Pakistani channels. 
+Live TV and VOD
+Religious and Entertainment
